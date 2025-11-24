@@ -1,0 +1,1 @@
+# Funcoes-matematicas-e-trigonomatricas-e-de-texto
